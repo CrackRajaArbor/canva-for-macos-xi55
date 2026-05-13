@@ -1,4 +1,4 @@
-# 
+# Get the ultimate Canva for macOS extension with new Canva for macOS Extension | non-destructive editing + typography tools. Featuring non-destructive editing and typography tools,
 
 
 
